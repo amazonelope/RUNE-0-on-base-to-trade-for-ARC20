@@ -9,3 +9,4 @@ Marketing is through aerodrome with incentivized staking to enhance fair and liq
 Stability enhanced by diversified assetts: Baseswap exchange and aerodrome on base and on atomicals we have rune and other ARC20s and on ordials we have moon BRC20 and pipe RUNE:0, 
 We are a small deentralized immutable team that has been working on this for months, it is now time to shine!
 Written by PIPERAT4145, and cryptopunk and voidsrus owner and bswap fan, C Staples. Have a lovely day.
+https://satsx.io/marketplace/pipe/dmt/listed?sort_by=price&q=rune:0,   https://satsx.io/marketplace/atomicals/ft/listed?q=rune&sort_by=price
