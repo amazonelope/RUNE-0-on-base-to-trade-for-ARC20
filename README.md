@@ -6,6 +6,6 @@ We are on telegram and discord (invite only) and will be releasing a large open 
 We are fans of Jack Levine VMPX and we see great inherent value in a token standard that is swappable, recognizable and that exists on all three major chains, (EVM- through base, ordinals through PIPE and their own rune standard being released at the halvening. 
 Tokenomics depends on the timing and approval of aerodrome before the halvening and we guarantee at least 8,000 RUNE and at most 58,000 Rune depending on liquidity and market forces. We also guanatee protocal stability and rigorous stress testing and as long as ordinals rune and EVM stay online, we should have no trouble.
 Marketing is through aerodrome with incentivized staking to enhance fair and liquid distribution in a fair and decentralized manner.
-Baseswap exchange and aerodrome on base and on atomicals we have rune and other ARC20s and on ordials e have moon BRC20 and ppe RUNE:0, 
-We are a small deentralized immutable team that has been working on this for months, it os now time to shine!
+Stability enhanced by diversified assetts: Baseswap exchange and aerodrome on base and on atomicals we have rune and other ARC20s and on ordials we have moon BRC20 and pipe RUNE:0, 
+We are a small deentralized immutable team that has been working on this for months, it is now time to shine!
 Written by PIPERAT4145, and cryptopunk and voidsrus owner and bswap fan, C Staples. Have a lovely day.
